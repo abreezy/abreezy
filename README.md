@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @abreezy
+- 👀 I’m interested in anything tech, artistic and creative!
+- 🌱 I’m currently learning java, python, SQL, and any other langugage/technology I can!
+- 💞️ I’m looking to collaborate on anything that looks fun and useful 
+- 📫 How to reach me: best way is my email at abeer.shahid1@gmail.com
